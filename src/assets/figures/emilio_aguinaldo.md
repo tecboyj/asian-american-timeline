@@ -1,3 +1,3 @@
 # Emilio Aguinaldo
 
-lorum ipsum dolor sit amet consectetur adipisicing elit. Quisquam, quos.
+He was a leader in the fight against Spain for Filipino independence between 1892 to 1896. In 1898, he assisted the US in the Spanish American war. After the war, the Phillipines were ceded to the US. Emilio Aguinaldo was elected the first President of the Phillippines and declared war with the US in 1899. After 3 years of fighting, the rebellion was defeated and Emilio Aguinaldo was captured and he took an oath of allegiance to the United States. During World War II in 1942, he was used by the Japanese against the US. In his later life, he worked on Veterans’s affairs and the promotion of Filipino nationalism and democracy.

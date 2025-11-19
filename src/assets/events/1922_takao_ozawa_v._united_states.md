@@ -1,14 +1,3 @@
 # Takao Ozawa v. United States (1922)
 
-Who or what is the focus of this event or act?
-
-Provide background/context of the law, act, event, or court case and what it did and mention the date of its occurrence.
-
-Did this event have a positive or negative impact on the AANHPI community?
-Explain using details/evidence from your research.
-
-Explain how this event affected American history overall.
-For example, in the case of Wong Kim Ark, what impact did it have on both AANHPI people and everyone born in the United States?
-
-CHALLENGE:
-If possible, describe another notable event in American history that happened at the same time but usually gets more attention than the one in your timeline. How has that event overshadowed or drawn attention away from this event in Asian American history?
+Takao Ozawa v. United States (1922) is a case heard before the Supreme Court in which Takao Ozawa, an immigrant residing in Hawaii, petitioned for citizenship on the basis of his “light complexion”, which allowed him to qualify as “white” because he had been denied citizenship based upon race prior to this petition. The court ruled that “white” was “of the Caucasian race” which excluded Ozawa from qualifying for citizenship. This upheld the 1790 Nationality Act that stipulated Asians were ineligible for naturalization. Specifically limiting the ability of Asian Americans to become citizens. This case set the precedents and parameters for future immigration acts including the Johnson Reed Act of 1924.

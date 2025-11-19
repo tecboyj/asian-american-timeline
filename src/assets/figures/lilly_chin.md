@@ -1,3 +1,3 @@
 # Lilly Chin
 
-lorum ipsum dolor sit amet consectetur adipisicing elit. Quisquam, quos.
+Lily Chen adopted her son from a Chinese orphanage in 1961. In the 1980’s, her son was killed by two unemployed auto workers who blamed their unemployment on the Japanese and mistook her son for being Japanese. Despite being arrested at the scene, the perpetrators only received probation and a fine as a sentence. There was outrage from Asian Americans across the US. Lily Chin spoke at rallys and demonstrations across the country. This led to the first civil rights trial for an Asian American in 1884. Chins role in the movement was documented in the movie “Who Killed Vincent Chin?”

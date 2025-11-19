@@ -1,14 +1,3 @@
 # Bhagat Singh Thind v. United States (1923)
 
-Who or what is the focus of this event or act?
-
-Provide background/context of the law, act, event, or court case and what it did and mention the date of its occurrence.
-
-Did this event have a positive or negative impact on the AANHPI community?
-Explain using details/evidence from your research.
-
-Explain how this event affected American history overall.
-For example, in the case of Wong Kim Ark, what impact did it have on both AANHPI people and everyone born in the United States?
-
-CHALLENGE:
-If possible, describe another notable event in American history that happened at the same time but usually gets more attention than the one in your timeline. How has that event overshadowed or drawn attention away from this event in Asian American history?
+Bhagat Singh Thind was a high caste Hindu, of full Indian blood, born at Amrit Sar, Punjab, India. He applied for citizenship and was granted citizenship which was later revoked. He petitioned his case in Bhagat Singh Thind v. United States (1923). The ruling determined he was ineligible for citizenship because at the time he would not be considered “white” by the “common man” even though Asian Indians were categorized as Aryan or caucasian. This contradicted the ruling in Ozawa v. U.S. About fifty Asian Indian Americans had their citizenship revoked based upon this ruling.

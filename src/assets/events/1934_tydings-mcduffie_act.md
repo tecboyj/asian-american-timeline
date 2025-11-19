@@ -1,14 +1,3 @@
 # Tydings-McDuffie Act (1934)
 
-Who or what is the focus of this event or act?
-
-Provide background/context of the law, act, event, or court case and what it did and mention the date of its occurrence.
-
-Did this event have a positive or negative impact on the AANHPI community?
-Explain using details/evidence from your research.
-
-Explain how this event affected American history overall.
-For example, in the case of Wong Kim Ark, what impact did it have on both AANHPI people and everyone born in the United States?
-
-CHALLENGE:
-If possible, describe another notable event in American history that happened at the same time but usually gets more attention than the one in your timeline. How has that event overshadowed or drawn attention away from this event in Asian American history?
+In 1934, the Philippines was a US colony, making Filipinos US nationals. Due to their status, they could not be excluded from immigration by prior acts like other Asians. With pressure from the western states over Filipinos competing with poor whites for agricultural jobs, Congress passed the Tydings-McDuffie Act (1934). The act limited immigration of Filipinos to 50 per year and promised the Philippines eventual independence. Due to World War II, independence was delayed till after the war. The path to independence prevented Filipinos already in the US from leaving due to being prevented from returning.

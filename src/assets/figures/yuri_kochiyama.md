@@ -1,3 +1,5 @@
 # Yuri Kochiyama
 
-lorum ipsum dolor sit amet consectetur adipisicing elit. Quisquam, quos.
+Yuri Kochiyama (May 19, 1921 – June 1, 2014) was a political activist who contributed to social change through her participation in social justice and human rights movements.
+
+She was born and raised in San Pedro, California. During World War II, she was placed in a internment camp in Jerome, Arkansas. This provided a basis for her political activism. In the 1960s, she participated in the Asian American, Black, and Third World movements for civil and human rights, ethnic studies, and against the war in Vietnam. She strived to build a political Asian American movement that would link itself to the struggle for Black liberation as a founder of the Asian Americans for Action. In 1963, she met Malcolm X and joined his movement to work for racial justice and civil rights. In the 1980’s Yuir worked for the redress and reparations movement for Japanese Americans that led to the Civil liberties act of 1988. This act provided $20,000 awards to Japanese Americans who were wrongfully interned during World War II.

@@ -1,14 +1,3 @@
 # United States v. Wong Kim Ark (1898)
 
-Who or what is the focus of this event or act?
-
-Provide background/context of the law, act, event, or court case and what it did and mention the date of its occurrence.
-
-Did this event have a positive or negative impact on the AANHPI community?
-Explain using details/evidence from your research.
-
-Explain how this event affected American history overall.
-For example, in the case of Wong Kim Ark, what impact did it have on both AANHPI people and everyone born in the United States?
-
-CHALLENGE:
-If possible, describe another notable event in American history that happened at the same time but usually gets more attention than the one in your timeline. How has that event overshadowed or drawn attention away from this event in Asian American history?
+Wong Kim Ark was born in San Francisco, California to Chinese citizens who were residing in California at the time of his birth. His parents had returned to China after residing in the US for over 20 years. At the age of 21, Wong Kim Ark left the US to visit his parents in China. Upon his return, he was denied entry. United States v. Wong Kim Ark (1898) was a case that challenged the 14th amendment that he was a US citizen based on being born in the US. The Supreme Court decided Wong Kim Ark was a US citizen because he was born in the US to parents who were not “employed in any diplomatic or official capacity under the Emperor of China.” The ruling established the parameters of the concept known as jus soli—the citizenship of children born in the United States to non-citizens. This changed the tides in the paths to citizenship for many immigrants, not just Asian American Immigrants.

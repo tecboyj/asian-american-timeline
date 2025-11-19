@@ -1,3 +1,3 @@
 # Vaishno Das Bagai
 
-lorum ipsum dolor sit amet consectetur adipisicing elit. Quisquam, quos.
+Vaishno Das Bagai was born in Peshawar, India. In 1915, he immigrated to the US with his family. He was a shop keeper in the San Fransisco bay area. Vaishno was worked with the Gadar Party in San Francisco, an organization dedicated to the Indian freedom movement. In 1920, he filed his naturalization papers in 1921 he became a naturalized US citizen. As a result of the U.S. vs. Thind decision, he was stripped of his US citizenship in 1925 due to misrepresentation as a “white” rather than a “Hindu”. In 1928, he committed suicide and his suicide note was published in the San Fransisco Examiner. His note highlighted the profound personalized toll and cost of racism and exclusion.
