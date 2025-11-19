@@ -1,26 +1,3 @@
-# Barred Zone Act
+# Barred Zone Act (1917)
 
-1917  
-Barred Zone Act (1917)
-
-Who or what is the focus of this event or act? 
-
-
-
-Provide background/context of the law, act, event, or court case and what it did and mention the date of its occurrence.
-
-
-
-Did this event have a positive or negative impact on the AANHPI community?
-Explain using details/evidence from your research.
-
-
-
-Explain how this event affected American history overall. 
-For example, in the case of Wong Kim Ark, what impact did it have on both AANHPI people and everyone born in the United States?
-
-
-
-CHALLENGE:
-If possible, describe another notable event in American history that happened at the same time but usually gets more attention than the one in your timeline. How has that event overshadowed or drawn attention away from this event in Asian American history?
-
+The Barred Zone Act of 1917 was a restrictive Act limiting immigration. The Act included a literacy test to demonstrate reading comprehension, raised immigration taxes upon those entering, and provided for more discretion in restricting those who could immigrate. It prohibited immigration from a “Barred Zone” spanning from the Middle East to Southeast Asia. This act significantly impacted Asians of the Indian subcontinent. But was not its only purpose, it was to limit overall immigration. World War I and the turmoil that it created, facilitated the passing of this Act by the US Congress. This Act negatively impacted the AANHPI community by further limiting immigrations and significantly impacted their ability to apply for US citizenship.

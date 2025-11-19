@@ -1,26 +1,3 @@
-# The Gentleman’s Agreement (between Japan and the US)
+# The Gentleman’s Agreement (between Japan and the US) (1907)
 
-1907  
-The Gentleman’s Agreement (between Japan and the US) (1907)
-
-Who or what is the focus of this event or act? 
-
-
-
-Provide background/context of the law, act, event, or court case and what it did and mention the date of its occurrence.
-
-
-
-Did this event have a positive or negative impact on the AANHPI community?
-Explain using details/evidence from your research.
-
-
-
-Explain how this event affected American history overall. 
-For example, in the case of Wong Kim Ark, what impact did it have on both AANHPI people and everyone born in the United States?
-
-
-
-CHALLENGE:
-If possible, describe another notable event in American history that happened at the same time but usually gets more attention than the one in your timeline. How has that event overshadowed or drawn attention away from this event in Asian American history?
-
+The Gentleman’s Agreement (between Japan and the US) (1907) was an informal agreement between US and Japan. Japan agreed to no longer issue passports to its laborers who wanted to go to the US. Koreans also fell under this because Korea was a protectorate of Japan. The motivation of the agreement was driven by California’s wishes to limit immigration. This restricted other Asian immigrants beyond Chinese. However, it was not as restrictive as previous acts, resulting in a more balanced gender population for the Japanese American population. Thus fueling motivation for further acts to restrict Asian immigration.

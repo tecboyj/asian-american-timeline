@@ -1,7 +1,4 @@
-# The Opium Wars
-
-1839-42  
-The Opium Wars (1839-42)
+# The Opium Wars (1839-42)
 
 Who or what is the focus of this event or act?
 

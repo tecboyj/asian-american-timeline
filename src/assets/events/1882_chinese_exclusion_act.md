@@ -1,26 +1,3 @@
-# Chinese Exclusion Act
+# Chinese Exclusion Act (1882)
 
-1882  
-Chinese Exclusion Act (1882)
-
-Who or what is the focus of this event or act? 
-
-
-
-Provide background/context of the law, act, event, or court case and what it did and mention the date of its occurrence.
-
-
-
-Did this event have a positive or negative impact on the AANHPI community?
-Explain using details/evidence from your research.
-
-
-
-Explain how this event affected American history overall. 
-For example, in the case of Wong Kim Ark, what impact did it have on both AANHPI people and everyone born in the United States?
-
-
-
-CHALLENGE:
-If possible, describe another notable event in American history that happened at the same time but usually gets more attention than the one in your timeline. How has that event overshadowed or drawn attention away from this event in Asian American history?
-
+The Chinese Exclusion Act of 1882 forbade the immigration of Chinese laborers for a period of 10 years, barred them from being naturalized citizens, and prohibited those already in the US from bringing their families. The Page Act of 1875 set the stage for this act. This was a change in US immigration policy by targeting immigrants based on their country of origin and socioeconomic status, changing us to a gatekeeping country rather than a nation of immigrants. This Act was a precursor to subsequent laws not only in the US but also in establishing exclusionary policies in boarder countries of Canada and Mexico. The Act had further socioeconomic impacts by allowing certain “exempt classes” to enter. Specifically merchants who became elites in the Chinese American urban communities. It also controlled the Chinese immigrant population and slowed down their reproductive rate for more than a generation ensuring that the political power of the Chinese American community would develop more slowly than that of other immigrant and ethnic groups in the US.
